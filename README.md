@@ -5,6 +5,7 @@ Disciplina: Fundamentos de Computadores Digitais (em 1993/2).
 Professor: Orlando Bernardo Filho, D.Sc.
 
 Prazo de dezenvolvimento do Jogo: 3 dias (entre 18 e 20/Abril/1993 - Feriado da Semana Santa em Teresópolis - Rio de Janeiro)
+
 Autor (100%): Luiz Marcio Faria de Aquino Viana, Pós-D.Sc.
 
 Trabalho apresentado pelo Grupo II da Turma de Fundamentos de Computadores Digitais 
