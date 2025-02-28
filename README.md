@@ -16,3 +16,11 @@ Wikipédia - Zilog Z80 https://pt.wikipedia.org/wiki/Zilog_Z80
 
 Nota de Falecimento do Professor Orlando Bernardo Filho, D.Sc., Coordenador do DESC - Departamento de Engenharia de Sistemas e Computação da UERJ (em 17/10/2019).
 http://www.eng.uerj.br/noticias/1571370611-Nota+de+Falecimento+Prof+Orlando+Bernardo+Filho
+
+# CONTATO
+
+CONTACT ME, IF YOU NEED HELP OR HAVE ANY QUESTIONS ABOUT THIS ACADEMIC WORK!
+
+Luiz Marcio Faria de Aquino Viana,Pós-D.Sc.
+E-mail: luiz.marcio.viana@gmail.com
+Phone/WhatsApp: +55-21-99983-7207
