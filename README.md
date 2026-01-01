@@ -22,5 +22,7 @@ http://www.eng.uerj.br/noticias/1571370611-Nota+de+Falecimento+Prof+Orlando+Bern
 CONTACT ME, IF YOU NEED HELP OR HAVE ANY QUESTIONS ABOUT THIS ACADEMIC WORK!
 
 Luiz Marcio Faria de Aquino Viana,Pós-D.Sc.
+
 E-mail: luiz.marcio.viana@gmail.com
-Phone/WhatsApp: +55-21-99983-7207
+
+Phone: +55-21-99983-7207 - WhatsApp: +55-21-95911-5253
